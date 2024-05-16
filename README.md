@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NijelB
-  >I am an ex-machinist making 4 panel dance pads for games like ITG and DDR
+  >What's up I am an ex-machinist making 4 panel dance pads for games like ITG and DDR
 - 📫 How to reach me:
   >E-Mail: spencer.n@barkusmfg.net
   >Discord: @NijelB
